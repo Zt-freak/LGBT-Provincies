@@ -1,0 +1,1 @@
+Ja, dit zijn de echte logo's van Viruswaanzin/Viruswaarheid.
